@@ -1,1 +1,1 @@
-Livro de receitas :man_cookOlá bem vido ao meu livro de receitas
+Livro de receitas :man_cookOlá bem vido ao meu livro de receitas* Strogonoff de Frango* Frango
